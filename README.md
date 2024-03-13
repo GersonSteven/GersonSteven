@@ -1,2 +1,2 @@
 
-![image](https://github.com/GersonSteven/GersonSteven/assets/163356853/93c6be67-6bf9-419f-af44-6526a6c53139)
+![image](https://github.com/GersonSteven/GersonSteven/assets/163356853/338f678b-46e3-49b5-bf28-59415892fd47)
